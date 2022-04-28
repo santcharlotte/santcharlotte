@@ -1,0 +1,1 @@
+Welcome! My name is Charlotte Sant and I'm a semanticist. I work on figuring out what logical mechanisms lie behind our human language. I am especially interested in (adjectival) modification and events. This website contains my CV, publications & talks, and my personal background.
